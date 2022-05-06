@@ -27,7 +27,7 @@ Fique com levante cicerone para abduzir a carta de condução facilmente e ser s
 
 
 
-Qualquer que seja a [carta de condução](https://www.easy-quizzz.com/pt/licenca/) que esteja a sacar ou a cismar distrair, pode exercitar para o fiscalização teórico com a Easy Quizzz. Esta plataforma oferece-lhe a ensejo de exercitar para os mais variados [testes de código] (https://www.easy-quizzz.com/pt/licenca/testes-de-codigo/) por exemplo estrato A, estrato B e ainda categorias mais específicas uma vez que as categorias C e D e assentar em rotina o que aprendeu para ser um bom condutor.
+Qualquer que seja a [carta de condução](https://www.easy-quizzz.com/pt/licenca/) que esteja a sacar ou a cismar distrair, pode exercitar para o fiscalização teórico com a Easy Quizzz. Esta plataforma oferece-lhe a ensejo de exercitar para os mais variados [testes de código](https://www.easy-quizzz.com/pt/licenca/testes-de-codigo/) por exemplo estrato A, estrato B e ainda categorias mais específicas uma vez que as categorias C e D e assentar em rotina o que aprendeu para ser um bom condutor.
 
 ### Torne-se num bom condutor com Easy Quizzz
 A Easy Quizzz é uma plataforma online de testes, lembrança em vários países do globo. Nesta plataforma vai poder encontrar os mais variados testes não isolado de cartas de condução, porém também cartas de navio, como ser uno bom condutor, etc. A Easy Quizzz operação também com uma app onde poderá trenar os mais variados exames enquanto está além de de casa.
@@ -41,7 +41,7 @@ Para ser uno bom condutor precisa de muito mais do que somente exturquir a carta
 ### Medidas para ser um bom condutor
 Para ser singular bom condutor existem certos comportamentos que deve de ter na trilho. Caso nunca cumpra as regras de atalho ou exerça uma condução perigosa pode ter [pontos descontados](www.acp.pt/servicos/carta-de-conducao/carta-por-pontos) da sua carta de condução. Para testemunhar quantos pontos têm, e se é de caso singular bom condutor consulte o [portal das contraordenações](www.portalcontraordenacoes.ansr.pt). Cumpra as seguintes medidas e tenha a afirmação que faz o seu papel enquanto único condutor responsável.
 #### Cumpra as velocidades estabelecidas
-Cumprir as velocidades estabelecidas parece vital, no entanto continuam a subsistir muitas contraordenações e acidentes provocados pela condução numa fugacidade excessiva. Para ser singular bom condutor, deverá seguir as velocidades permitidas por lei, todavia também compreender adaptá-las às mudanças de condições meteorológicas.
+Cumprir as velocidades estabelecidas parece vital, no entanto continuam a subsistir muitas contraordenações e acidentes provocados pela condução numa fugacidade excessiva. Para ser singular [bom condutor](https://www.easy-quizzz.com/pt/licenca/testes-de-codigo/bom-condutor/), deverá seguir as velocidades permitidas por lei, todavia também compreender adaptá-las às mudanças de condições meteorológicas.
 #### Faça pausas regulares
 Conduzir durante muitas horas promove indiferença e fadiga. Se o seu percurso de viagem tiver mais de 2 horas de condução, conte que irá carecer de realizar uma pausa de lã menos 10 minutos. Aproveite a intervalo para ingerir uno cafezeiro e ouça música para descontrair.
 #### Foque-se na via
