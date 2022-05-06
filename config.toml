@@ -1,5 +1,5 @@
 ######################## default configuration ####################
-baseURL = "https://pt-easy-quizz.pages.dev/"
+baseURL = "/"
 languageCode = "en-us"
 title = "Easy-Quizzz | Todas as informações sobre questionários de carta de condução, testes de competição e testes militares."
 theme = "liva-hugo-master"
